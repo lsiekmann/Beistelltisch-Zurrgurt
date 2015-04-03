@@ -3,7 +3,7 @@
 
 15 mm OSB-Platte, zusammengehalten von drei Spanngurten
 
-![Stahlrahmen](fertig_carl_1200.jpg  "Stahlrahmen")
+![Beistelltisch fertig](beistelltisch_ftg.jpg  "Beistelltisch fertig")
 
 Abmessungen: 40 cm × 40 cm × 40 cm.
 
